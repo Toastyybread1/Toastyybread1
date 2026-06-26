@@ -1,3 +1,1 @@
-Python
-
-I am interested in learning math, and I love creating things
+I love learning about math, and I love creating things
